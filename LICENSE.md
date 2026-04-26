@@ -1,4 +1,4 @@
-
+Experience aura ascension like never before with aura ascension updated Scripts, the #1 Script. Includes speed and auto-upgrade for unbeatable
 
 
 
